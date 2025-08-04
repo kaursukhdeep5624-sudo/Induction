@@ -45,8 +45,15 @@
  ---
 
  ### *Day 2 ( 1 August,2025)*
- My 2nd day of college started a bit differently.As soon as we arrived, we had to give a test in English and Maths.this test is very helpful to switch our minds into study mode and get back into learning zone.After the test we were guided to the auditorium for a session. The session is delievered by **Dr.Arashdeep Singh** on "Food:-A pivotel Role in students's overall wellness but the session is not just about healthy food-it went much deeper.He talked about how food is connected to our health which type of food we should consume on daily basis and i like this session very much. What made the more session relatable and interesting is the way he explained it in simple language.
+ My 2nd day of college started a bit differently.As soon as we arrived, we had to give a test in English and Maths.this test is very helpful to switch our minds into study mode and get back into learning zone.After the test we were guided to the auditorium for a session. The session is delievered by **Dr.Arashdeep Singh sir** on "Food:-A pivotel Role in students's overall wellness but the session is not just about healthy food-it went much deeper.He talked about how food is connected to our health which type of food we should consume on daily basis and i like this session very much. What made the  session more  relatable and interesting is the way he explained it in simple language.
  
- After we had an interactive session with  _**causmic club**_ . They introduced us to **Github** which is platform used by students and may others to share and manage code or project. For most of us it was new concept but they explained it very well. After that they gave us a task to make and upload our view ,observation and our experience about induction program . It was a great way to get hands on experience and understand how github works . It felt good to do something practical on the very first days of our collegeg . It also made us realize how important its is to get familier with tools like Github early on our tech journey.
- 
-  
+ After this we had an interactive session with  _**causmic club**_ . They introduced us to **Github** which is platform used by students and may others to share and manage code or project. For most of us it was new concept but they explained it very well. After that they gave us a task to make and upload our view ,observation and our experience about induction program . It was a great way to get hands on experience and understand how github works . It felt good to do something practical on the very first days of our collegeg . It also made us realize how important its is to get familier with tools like Github early on our tech journey.
+
+### *Day 3 ( 2 August,2025)*
+On day 3 of the induction program we had a truly unique and memorable session by **Dr.Jaswinder Singh sir**. He beautifully connected the world of mathematics with spirituality and God.It was not just lecture but it felt more like a journey of thoughts and reflection.He didn't just speak to our minds but spoke to our hearts.One part that really stood out to me was when he said,"close your eyes and see with your inner vision,close your ears and listen with your inner ears".
+
+After this Hourable chief guest **S.gurucharan Singh Grewal** sir encourage us with his motivating words and tell us about the 70 years legacy of the college.
+
+Then **Dr.Priya Darshni mam** introduced us to subject which will help us to connect to our inner soul and body. Mam ensure us to explore what we actually wanted in our life happiness or excitement.After attending that lecture i got to know what i actually wanted in my life that is continuity of happiness which i can achieve only by making myself and other happy.
+
+
