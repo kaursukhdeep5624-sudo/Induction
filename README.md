@@ -7,7 +7,7 @@
 
  ## 🗓️About Induction program 
 
- #### This induction program is designed to help us (  first year students ) adapt to the new acadamics  environment , understanding college structure and get motivated for our  engineering journey  
+ #### This induction program is designed to help us adapt to the new acadamics  environment , understanding college structure and get motivated for our  engineering journey.
  ---
   ### *Day 1 (31 july 2025 )*
   ### 🙏spiritual opening 
@@ -33,17 +33,18 @@
   ### 👨‍🏫Er.Ravinder Garg- chief Engineer,Municipal Cooperation,ludhiana 
   Sir inspire us with his journey and also encourage us to grow with values and skills 
   ### 👨‍🏫Er.Rakesh kumar-GNDEC Alumnus(Batch 1991),Additional Deputy Commissioner,Ludhiana
-  Personally, sir really inspire me as sir was also part of GNE family. he was student of 1991 batch. He share his experience with us that how he feel when he entered the college after 34 years the journry from sitting in the students as student to delievering a speech as chief guest .His journey is true example of how dedication and hardwork can lead to great achievements. It inspire us to believe that we too can accomplish great things here starting right here at GNDEC.
+  Personally, sir really inspire me as sir was also part of GNE family. he was student of 1991 batch. He share his experience with us that how he feel when he entered the college after 34 years the journey from sitting in the students as student to delievering a speech as chief guest .His journey is true example of how dedication and hardwork can lead to great achievements. It inspire us to believe that we too can accomplish great things here starting right here at GNDEC.
   
  ### 👨‍🏫Dr. K.S.Mann-HoD,Informatiion Technology 
   in the end sir ensure us that when we will leave this college with alot of happiness also  We will be successful and better human being.
 
   ## 🏫Campus and Department tour 
-  After the speaker sessions we were guided through a College tour including visit to our respective departments,labs,classrooms and departmental library. We also received detailed overview of our course struture and got to explore the faculities and resourses available in our respective departments.The tour helped us become familier with the campus environment and gave us better understanding of where and how will be learining in the coming years .
+  After the speaker sessions around 1:30 pm  we were guided through a College tour including visit to our respective departments,labs,classrooms and departmental library. We also received detailed overview of our course struture and got to explore the faculities and resourses available in our respective departments.The tour helped us become familier with the campus environment and gave us better understanding of where and how will be learining in the coming years .I really enjoyed watching our departments and interacting with new students which make me more socialize 
   
    
  ---
 
  ### *Day 2 ( 1 August,2025)*
+ My 2nd day of college started a bit differently.As soon as we arrived, we had to give a test in English and Maths.this test is very helpful to switch our minds into study mode and get back into learning zone.After the test we were guided to the 
  
   
