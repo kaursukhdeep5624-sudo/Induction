@@ -56,4 +56,9 @@ After this Hourable chief guest **S.gurucharan Singh Grewal** sir encourage us w
 
 Then **Dr.Priya Darshni mam** introduced us to subject which will help us to connect to our inner soul and body. Mam ensure us to explore what we actually wanted in our life happiness or excitement.After attending that lecture i got to know what i actually wanted in my life that is continuity of happiness which i can achieve only by making myself and other happy.
 
+### *Day 4 (4 August,2025)*
+On the 4th day , we had our first chemistry lecture.Our chemistry mam intoduced us to some basic concepts of engineering .Mam also motivated us to keep working on our skills. Mam told us to make our profile on linkdin to interact more professionally.Then we had a peer to peer session with our seniors.It was an engaging experience where they taught us the basics of c++ programming in a very friendly and helpful manner.After this the share some college activities ,clubs and exams which i really like they share their personal experience with us.
+After break , we attended a expert lecture delievered by **Dr.Priya Darshni mam**.Her session was informative and inspiring and i learned a lot from her experience and insights.She also address us to do things that is only natural accepted by us not for fame or showoff.
+
+
 
