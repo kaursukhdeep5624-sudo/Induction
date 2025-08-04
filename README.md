@@ -36,7 +36,7 @@
   Personally, sir really inspire me as sir was also part of GNE family. he was student of 1991 batch. He share his experience with us that how he feel when he entered the college after 34 years the journey from sitting in the students as student to delievering a speech as chief guest .His journey is true example of how dedication and hardwork can lead to great achievements. It inspire us to believe that we too can accomplish great things here starting right here at GNDEC.
   
  ### 👨‍🏫Dr. K.S.Mann-HoD,Informatiion Technology 
-  in the end sir ensure us that when we will leave this college with alot of happiness also  We will be successful and better human being.
+  in the end sir ensure us that  we will leave this college with alot of happiness also  We will be successful and better human being.
 
   ## 🏫Campus and Department tour 
   After the speaker sessions around 1:30 pm  we were guided through a College tour including visit to our respective departments,labs,classrooms and departmental library. We also received detailed overview of our course struture and got to explore the faculities and resourses available in our respective departments.The tour helped us become familier with the campus environment and gave us better understanding of where and how will be learining in the coming years .I really enjoyed watching our departments and interacting with new students which make me more socialize 
@@ -45,6 +45,8 @@
  ---
 
  ### *Day 2 ( 1 August,2025)*
- My 2nd day of college started a bit differently.As soon as we arrived, we had to give a test in English and Maths.this test is very helpful to switch our minds into study mode and get back into learning zone.After the test we were guided to the 
+ My 2nd day of college started a bit differently.As soon as we arrived, we had to give a test in English and Maths.this test is very helpful to switch our minds into study mode and get back into learning zone.After the test we were guided to the auditorium for a session. The session is delievered by **Dr.Arashdeep Singh** on "Food:-A pivotel Role in students's overall wellness but the session is not just about healthy food-it went much deeper.He talked about how food is connected to our health which type of food we should consume on daily basis and i like this session very much. What made the more session relatable and interesting is the way he explained it in simple language.
+ 
+ After we had an interactive session with  _**causmic club**_ . They introduced us to **Github** which is platform used by students and may others to share and manage code or project. For most of us it was new concept but they explained it very well. After that they gave us a task to make and upload our view ,observation and our experience about induction program . It was a great way to get hands on experience and understand how github works . It felt good to do something practical on the very first days of our collegeg . It also made us realize how important its is to get familier with tools like Github early on our tech journey.
  
   
