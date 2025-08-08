@@ -11,7 +11,7 @@
  ---
   ### 🗓️ *Day 1 (31 july 2025 )*
   ### 🙏spiritual opening 
-  _The Day begin with **the divine blessings from Gurudwara Sahib** creating a peaceful and a positive atmosphere. The prayer ceremony marked a respectful start to the academic journey. 
+  _The Day begin with **the divine blessings from Gurudwara Sahib** creating a peaceful and a positive atmosphere. The prayer ceremony marked a respectful start to the academic journey_. 
 
 
   _The induction program begin with a motivational video featuring college alumni who were once  part of this journey **Sangam Arora**  and **Arshpreet Singh** who motivated us to be positive throughout this beautiful journey and create a good balance of all the activities._
