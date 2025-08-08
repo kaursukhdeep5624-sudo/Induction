@@ -5,7 +5,7 @@
  #### Sukhdeep Kaur 
  #### 💻btech cse student 
 
- ## 🗓️About Induction program 
+ ## 🌟About Induction program🌟
 
  #### This induction program is designed to help us adapt to the new acadamics  environment , understanding college structure and get motivated for our  engineering journey.
  ---
