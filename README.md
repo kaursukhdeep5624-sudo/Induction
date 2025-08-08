@@ -10,30 +10,37 @@
  #### This induction program is designed to help us adapt to the new acadamics  environment , understanding college structure and get motivated for our  engineering journey.
  ---
   ### 🗓️ *Day 1 (31 july 2025 )*
-  ### 🙏spiritual opening 
+  ### 🙏Spiritual Opening 
+
   _The Day begin with **the divine blessings from Gurudwara Sahib** creating a peaceful and a positive atmosphere. The prayer ceremony marked a respectful start to the academic journey_. 
 
 
   _The induction program begin with a motivational video featuring college alumni who were once  part of this journey **Sangam Arora**  and **Arshpreet Singh** who motivated us to be positive throughout this beautiful journey and create a good balance of all the activities._
 
   ## 🎤Guest speakers at the induction program 
-  As part of induction program several distinguish speakers addressed us , sharing their valuable knowledge,experience and guidance to help us begin our engineering journey 
+  As part of induction program several distinguish speakers addressed us , sharing their valuable knowledge,experience and guidance to help us begin our engineering journey.
   ### 👨‍🏫Dr. Sehajpil Singh- Principal,GNDEC
+
   Sir welcomed the students and spoke about the rapidly changing world of technology. He emphasized the crucial role that engineers play in the industry,regardless of their branch-with special focus on CSE and IT.
 
   ### 👩‍🏫Dr.Harpreet kaur Grewal - HoD,Applied Science 
+
   Mam addressed us with thoughtful message about the importance of this new phase in our lives. She also emphasized that the beginning of college is crucial foundation for personal,academics and professional growth.She encourage us to take our studies seriously  and stay disciplined and make  the most of every opportunity from day one.
 
   ### 👨‍🏫Dr.Akshay Girdhar-Dean Academics
-  Sir spoke about the wide range of opportunities that we will get during GNDEC. He also encouraged us to stay proactive , explorre various academics and co-curricluar paths, and take full advantage of the resourses and support provided by the college  
+
+  Sir spoke about the wide range of opportunities that we will get during GNDEC. He also encouraged us to stay proactive , explore various academics and co-curricluar activities, and take full advantage of the resourses and support provided by the college.
   
   ### 👨‍🏫Dr.Parminder Singh- Dean Student Welfare
   He reminded us that our college faculty members and parents will always support us throughout this journey and also encourage us to work hard ,stay focused,and use our education and knowledge to serve the nation with dedication.
   
-  ### 👨‍🏫Er.Ravinder Garg- chief Engineer,Municipal Cooperation,ludhiana 
-  Sir inspire us with his journey and also encourage us to grow with values and skills 
+  ### 👨‍🏫Er.Ravinder Garg- chief Engineer,Municipal Cooperation,ludhiana.
+
+  Sir inspire us with his journey and also encourage us to grow with values and skills.
+ 
   ### 👨‍🏫Er.Rakesh kumar-GNDEC Alumnus(Batch 1991),Additional Deputy Commissioner,Ludhiana
-  Personally, sir really inspire me as sir was also part of GNE family. he was student of 1991 batch. He share his experience with us that how he feel when he entered the college after 34 years the journey from sitting in the students as student to delievering a speech as chief guest .His journey is true example of how dedication and hardwork can lead to great achievements. It inspire us to believe that we too can accomplish great things here starting right here at GNDEC.
+
+  Personally, sir really inspire me as sir was also part of GNE family.He was student of 1991 batch. He share his experience with us that how he feel when he entered the college after 34 years the journey from sitting in the students as student to delievering a speech as chief guest .His journey is true example of how dedication and hardwork can lead to great achievements. It inspire us to believe that we too can accomplish great things here starting right here at GNDEC.
   
  ### 👨‍🏫Dr. K.S.Mann-HoD,Informatiion Technology 
   in the end sir ensure us that  we will leave this college with alot of happiness also  We will be successful and better human being.
