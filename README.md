@@ -46,7 +46,7 @@
   in the end sir ensure us that  we will leave this college with alot of happiness also  We will be successful and better human being.
 
   ## 🏫Campus and Department tour 
-  After the speaker sessions around 1:30 pm  we were guided through a College tour including visit to our respective departments,labs,classrooms and departmental library. We also received detailed overview of our course struture and got to explore the faculities and resourses available in our respective departments.The tour helped us become familier with the campus environment and gave us better understanding of where and how will be learining in the coming years .I really enjoyed watching our departments and interacting with new students which make me more socialize 
+  After the speaker sessions around 1:30 pm  we were guided through a College tour including visit to our respective departments,labs,classrooms and departmental library. We also received detailed overview of our course struture and got to explore the faculities and resourses available in our respective departments.The tour helped us become familier with the campus environment and gave us better understanding of where and how will be learning in the coming years .I really enjoyed watching our departments and interacting with new students which make me more socialize 
   
    
  ---
